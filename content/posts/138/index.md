@@ -1,5 +1,5 @@
 ---
-title: "138"
+title: 19 Of The Dumbest Things Pets Have Ever Done Shared By Their Owners
 date: 2022-02-10T17:53:55.262Z
 image: dumbest-things-dogs-and-cats-have-done.jpeg
 ---
